@@ -1,4 +1,3 @@
-# 240-Chestnut-St-for-lease
 
 # 240-Chestnut-St-for-lease
 https://hudson-commercial.github.io/240-Chestnut-St-for-lease/
